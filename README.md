@@ -35,4 +35,4 @@
 
 ### Методичка
 
-[Открыть методичку](https://ссылка-на-диск)
+[Открыть методичку](https://drive.proton.me/urls/K3MR65GZT0#BCHdUOKivqEK)
