@@ -35,4 +35,4 @@
 
 ### Методичка
 
-[Открыть методичку](https://drive.proton.me/urls/K3MR65GZT0#BCHdUOKivqEK)
+[Открыть методичку](https://drive.proton.me/urls/XSE8VKWEV0#lCzgHpyDa9dV)
